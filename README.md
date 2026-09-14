@@ -1,2 +1,0 @@
-# Adrenalina-
-Adrenalina modelo tridimensional 
